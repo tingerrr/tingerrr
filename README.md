@@ -1,1 +1,1 @@
-# 🍆
+# rust & typst enthusiast
