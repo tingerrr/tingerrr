@@ -1,1 +1,1 @@
-This account is oerpated by 1000 rats
+This account is operated by 1000 rats
